@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAAB990819MMCRRR09
+MAAB990819MMCRRR09
